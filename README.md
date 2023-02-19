@@ -5,3 +5,5 @@
 
 
 ![pc 1,2,3](https://user-images.githubusercontent.com/110315163/219929851-778b23c2-1f1e-498b-ad6c-624cc7e1d04b.png)
+
+![elbow curve k](https://user-images.githubusercontent.com/110315163/219931737-2e14fc12-80c7-41aa-9bce-b90585ccaa3b.png)
